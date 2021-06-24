@@ -1,1 +1,1 @@
-# kk420
+# kk420 hello I'm a 28 yrs old female native American. I specialize in full body massages that have happy endings.eate for a half hours 55 plus tip and full hour is 105 plus tip. Please contact with questions.  
